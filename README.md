@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rahulkumar20010702@gmail.com**
 
-- 📄 Know about my experiences [Portfolio]([https://drive.google.com/drive/folders/1iDp6nFAzlTGfEjO6XeCbTJTV2OhYpyU6?usp=share_link](https://rahul.swastik.ai))
+- 📄 Know about my experiences [link](https://rahul.swastik.ai)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
